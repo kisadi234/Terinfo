@@ -10,7 +10,7 @@ Kalicz Hanga Mária almaa
 
 Kancz Barnabás
 
-Kis Ádám 123
+Kis Ádám 123 sikerült
 
 Laczkovich Dániel Gyömrő
 
